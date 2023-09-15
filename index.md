@@ -1,1 +1,1 @@
-khat.png
+khat.jpg
